@@ -1,4 +1,4 @@
-## **Explanation Video : Coming Soon...**
+## **Explanation Video : [Click here](https://drive.google.com/file/d/1V8OQogTAfyzlPNTDTb1UXS8hb5id5NSQ/view?usp=drivesdk)**
 
 ![diagram-export-15-08-2024-12_41_56](https://github.com/user-attachments/assets/3e169d57-17e4-4294-a73b-4ebab35a6a9b)
 
